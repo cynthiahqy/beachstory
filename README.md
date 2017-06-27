@@ -8,7 +8,7 @@ However, little did he know, his books were so bad they enraged the gods. Lighti
 
 He heard a voice. "Write a better book and you can leave this island." 
 
-He was Sad, annoyed. He couldn't understand why. His book was amazing!
+He was sad, annoyed. He couldn't understand why. His book was amazing!
 
 Carlos was perplexed. He was sure he was the best author in the world. "Why would the gods be angered by perfection?"
 
