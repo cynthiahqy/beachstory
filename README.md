@@ -12,4 +12,6 @@ He was sad, annoyed. He couldn't understand why. His book was amazing!
 
 Carlos was perplexed. He was sure he was the best author in the world. "Why would the gods be angered by perfection?"
 
-He tried many time, and at last, he found that the god really likes the book about ruby. He continued to write books about it until he died. Why he can not leave the island ? Because the god was once the best programmer in the world.
+He spied a woman sitting on the beach. Carlos thought that she looked like she could understand fine literature, much better than the gods could. He came up to her, and asked her to read his book.
+
+After looking at his book for a few seconds, the woman looked up at Carlos. She seemed amused. Carlos cried "Why are you amused by my book, it's a work of art?!"
